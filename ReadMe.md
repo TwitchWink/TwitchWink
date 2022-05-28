@@ -1,5 +1,5 @@
 # Hello
 
-I am TwitchWink, but you can call me Twitch.
+I'm TwitchWink, but you can call me Twitch.
 
-I am mirthfully looking forward to meeting you.
+Looking mirthfully towards meeting you.
